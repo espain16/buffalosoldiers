@@ -1,1 +1,1 @@
-# buffalosoldiers
+# buffalo soldiers
